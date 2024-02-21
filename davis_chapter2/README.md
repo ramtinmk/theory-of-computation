@@ -1,0 +1,1 @@
+solutions of chapter 2 of davis book
